@@ -1,16 +1,17 @@
-### Hi there 👋
+### Hello!!! This is my little website :]
 
-<!--
-**purplerowboated/purplerowboated** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- I like object shows and mcyt :]
+- I use he/they/xe/end pronouns, though i dont really mind which you refer to me as as long as you dont use she/her on me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+
